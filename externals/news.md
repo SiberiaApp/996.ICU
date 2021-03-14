@@ -132,6 +132,8 @@
 
 - 金融界：[冯仑：关于「996」，我的看法是这样的](https://baijiahao.baidu.com/s?id=1631468784393271629&wfr=spider&for=pc)
 
+- 澎湃新闻：[委员呼吁监管“996”引热议，网友力挺](https://mp.weixin.qq.com/s/SLfzykfmQx973gLmwO4Wxg)
+
 
 ### 非中国媒体
 
